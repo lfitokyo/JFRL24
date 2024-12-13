@@ -16,7 +16,7 @@ PDF sur clé USB
 Google Slide: https://docs.google.com/presentation/d/1cla0QFwKcjRPUHd516wBKi2Ha1oNjInFqKHGQHx3y4M
 
 **16h20	Le rôle de l'écrivain Kuni Matsuo (1899-1975) dans les cercles franco-japonais dans le Paris des années 1920 et 1930.** <br />
-
+Google Slide: https://docs.google.com/presentation/d/1H6-vTNxgtsC8dGsyCj4pnS_Szvy7Zy4hztp_r3AgTQc/edit?usp=sharing
 
 **16h30	La disparition des langues, de l'Antiquité à nos jours.** <br />
 Google Slide: https://docs.google.com/presentation/d/1cc5kB8FgjSED-F0h30hFBraOsBwhFDS61svgJAqJOyc
